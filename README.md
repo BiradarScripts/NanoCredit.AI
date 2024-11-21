@@ -430,5 +430,11 @@ Let’s make financial inclusion a reality for the smallest entrepreneurs with t
 ## 📩 **Contact Us**  
 Reach out to **Team NanoVisionaries**:  
 📧 [Aryaman.Pathak@iiitb.ac.in](mailto:Aryaman.Pathak@iiitb.ac.in)  
+📧 [Shreyas.Biradar@iiitb.ac.in](mailto:Shreyas.Biradar@iiitb.ac.in)  
+📧 [Rutul.Patel@iiitb.ac.in](mailto:Rutul.Patel@iiitb.ac.in)  
+📧 [Hemag.Seth@iiitb.ac.in](mailto:Hemag.Seth@iiitb.ac.in)  
+
+
+
 
 Be part of the change. Let’s empower nano-entrepreneurs together! 🚀  
